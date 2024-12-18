@@ -1,1 +1,0 @@
-it is important that you unerstand the work that you are doing, having a strongg foundation of coding will enable you to be able navigate through challenges and concoquer. To be a good and highly professional coder.
