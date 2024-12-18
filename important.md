@@ -1,0 +1,1 @@
+it is important that you understand the work that you are doing as a result you will have a strong foundation, enabling you to navigate through challenges, be a good coder and a professional.
