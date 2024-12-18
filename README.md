@@ -1,2 +1,3 @@
 # hello-world.
-practice for the GitHub flow.
+my name is Asanda.
+an aspiring web developer.
